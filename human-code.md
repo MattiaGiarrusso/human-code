@@ -36,7 +36,7 @@ PRENDO GLI INGREDIENTI
 
 CUCINARE
 
-1- Prendo pentole e teglia
+1- Prendo pentole e teglia dalla dispensa
 
 2- Preriscaldo il forno
 
